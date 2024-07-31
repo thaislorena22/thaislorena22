@@ -7,5 +7,4 @@ Meu nome é Thais Lorena Portela
 - Vou utilizar esse espaço para compartilhar os meus projetos desenvolvidos;
 
 
-![] ()
- 
+![](https://media1.tenor.com/m/qLEl9-jSpw0AAAAC/jensen-ackles-dean-winchester.gif)
